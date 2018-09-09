@@ -12,9 +12,12 @@ If the honey bee population continues to decline from the consequences of human 
 
 When I make an image, I take a deconstructive approach to subject matter. I compartmentalize meaningful elements and their associations and build a composition from the elements....... `lost it`
 
-Most of my images dialogue with the counterintuitive relationship of man and his surrounding environment. Man at once occupies the states of tool maker and `something about being part of the environment he affects to his own ends.`
+Most of my images dialogue with the counterintuitive relationship of man and his surrounding environment. Man at once occupies the states of tool maker and 
+`something about being part of the environment he affects to his own ends.`
 
-`diametric between mankind's tool-building nature and nature's reactionary approach to balance`
+```
+diametric between mankind's tool-building nature and nature's reactionary approach to balance
+```
 
 My images serve as a visual record of research.
 
