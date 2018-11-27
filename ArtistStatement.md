@@ -1,51 +1,13 @@
 # Artist Statement
 
-My work explores the dynamic relationship between humankind and the environment that both contains it and it manipulates. This process using human-designed machinery and chemical manipulations to produce an image lends itself to my documentary exploration of man and nature’s relationship central to the works. In making my work, I simultaneously play both roles, intervening in the composition and reacting to those interventions.
+The primary line of inquiry in this body of work is an investigation of the individual’s psychological need for belonging. My work examines this theme using a visual metaphor of honey bees and beekeepers.
 
-Humans bend and morph their surroundings to survive and thrive while nature responds and adapts to those manipulations. I inspect this eternal waltz of human intervention and environmental response through images highlighting a representative part of the more global relationship.
+By channeling feelings of angst, isolation, and hopelessness, I employ an expressive gestural mark; attempting to illustrate a personal ambition for social belongingness.
 
-If the honey bee population continues to decline from the consequences of human intervention, the structure of the ecosystem, from herbivores to carnivores, will undergo a dramatic and irreversible shift.
+Using this metaphorical framework of the beekeeper, his colonies of bees, and organic imagery, for both visual and conceptual content, I create scenes emblematic of the social groups and relationships I seek. In effect, my own unconscious practice of forming and nurturing groups or colonies is similar to the goals of the beekeeper. In a Maslowian sense, my formation of colonies is motivated by my own need for authentic social connections and relationships.
 
----
-
-## Additions
-
-When I make an image, I take a deconstructive approach to subject matter. I compartmentalize meaningful elements and their associations and build a composition from the elements....... `lost it`
-
-Most of my images dialogue with the counterintuitive relationship of man and his surrounding environment. Man at once occupies the states of tool maker and 
-`something about being part of the environment he affects to his own ends.`
+To the sensitive viewer, the images welcome self-reflection, allowing an internal dialogue to take place between the viewer and the metaphorical elements. I challenge viewers in evaluating their individual need for belonging and the state of their own social colonies.
 
 ```
-diametric between mankind's tool-building nature and nature's reactionary approach to balance
+revised: Tue Nov 27 15:03:44 2018
 ```
-
-My images serve as a visual record of research.
-
-I take a Gestalt approach to the construction of a composition. To me, a finished image is greater than the sum of its component parts. The act of composing the image imbues a new dimension to both the art object and its subject matter. 
-
-`It is in this space that the content sits. ------------------ yawn` 
-
-My images take the crux of issues with global scope and apply that concept to a much smaller, but still significant, relationship indicative of the whole. A successful image, then, would engage both perspectives.
-
-Engaging the oppositional nature of the inhabitant and the habitat.
-
-My images confront the viewer simultaneously creating an acute awareness of the macro and micro relationships between man and his affect on his environmet.
-
---
-
-
-## Q+A....
-
-### What is success in your work?
-
- - call attention to an easily overlooked element of a much larger whole while engaging both the micro and macro perspectives
- - engagement and education with the viewer — effecting an altered experience or perception extending outside the picture plane
-
-### Why express ideas using imagery?
-
- - an image's inescapeable abstraction allows for interpretation by its viewer. Thus, the object engages on a personal level
- - a non-standard visual proposition demands the viewer's engagement and attention.
-  -  an image invites interpretation and thus creativity within the viewer. The ability to facilitate that experience is..... `<something>`
-
-
-`version 2, revised 9/7/18`
